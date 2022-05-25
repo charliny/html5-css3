@@ -4,4 +4,4 @@
 
 ## Meta
 
-Jéssica Ramos – [@Jéssica Ramos](https://www.linkedin.com/in/jessica-charliny-ramos-0b31781ba/)
+Jorge Ramos – [@Jorge Ramos](https://www.linkedin.com/in/jorge-ramos-309763238/)
